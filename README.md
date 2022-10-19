@@ -1,0 +1,2 @@
+# ilhaniskurt.github.io
+/
